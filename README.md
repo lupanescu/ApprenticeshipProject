@@ -1,0 +1,3 @@
+The web platform aims to promote myself as a personal fitness trainer to assert myself in the online environment. 
+My desire is to make a wide group of people aware that we can all perform in the sports environment. This is not an isolated environment in which only people with natively acquired sports skills can find their place, but is open to absolutely any category of person. 
+This is very easy to demonstrate through the power of example, for my part I was a person who fell into the social stereotypes of a person without sports skills and I relied on the idea that if I did not receive this gift, there was no point in making the effort.
